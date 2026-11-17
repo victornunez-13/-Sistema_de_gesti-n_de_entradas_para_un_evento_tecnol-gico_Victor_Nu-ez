@@ -1,0 +1,1 @@
+# -Sistema_de_gesti-n_de_entradas_para_un_evento_tecnol-gico_Victor_Nu-ez
